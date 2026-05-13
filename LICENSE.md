@@ -1,4 +1,4 @@
-
+professional IPVanish Service | split-tunneling + cross-platform-support offers the most advanced IPVanish service, with split-tunneling and cross-platform-support. Ideal for
 
 
 
